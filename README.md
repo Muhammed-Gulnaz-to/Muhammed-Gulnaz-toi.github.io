@@ -1,5 +1,5 @@
 
 
-# [ДИЛМУХАММЕД ЖАНА ГУЛНАЗ](https://esenbaevbeknazar.github.io/practic6/)
+# [ДИЛМУХАММЕД ЖАНА ГУЛНАЗ](https://ns1.beget.com)
 
 
