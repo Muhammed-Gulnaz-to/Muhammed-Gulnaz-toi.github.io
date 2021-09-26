@@ -1,5 +1,5 @@
 
 
-# [ДИЛМУХАММЕД ЖАНА ГУЛНАЗ](muhammed-gulnaz-toi.esenba47.beget.tech)
+# [ДИЛМУХАММЕД ЖАНА ГУЛНАЗ](http://muhammed-gulnaz-toi.esenba47.beget.tech/)
 
 
